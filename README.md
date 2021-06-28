@@ -9,7 +9,7 @@
 3. Statlivetsa
 4. Confetti
 5. Kaktus
-6. 
+
 ![Fun](IMG_0402.jpg)
 
 
